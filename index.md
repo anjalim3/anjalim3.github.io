@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## 'The most powerful tool for efficiency is last minute panic' - Me
 
 This site is a work in progress.
 
